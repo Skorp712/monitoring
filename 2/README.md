@@ -1,5 +1,6 @@
 ![alt text](https://github.com/Skorp712/monitoring/blob/main/2/1.png)
 ![alt text](https://github.com/Skorp712/monitoring/blob/main/2/2.png)
 ![alt text](https://github.com/Skorp712/monitoring/blob/main/2/21.png)
+![alt text](https://github.com/Skorp712/monitoring/blob/main/2/22.png)
 ![alt text](https://github.com/Skorp712/monitoring/blob/main/2/3.png)
 ![alt text](https://github.com/Skorp712/monitoring/blob/main/2/33.png)
